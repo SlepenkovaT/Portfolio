@@ -1,6 +1,6 @@
 ## Слепенкова Татьяна Владимировна
 
-![WhatsApp Image 2024-06-05 at 18.40.18.jpeg](https://github.com/SlepenkovaT/Portfolio/blob/main/WhatsApp%20Image%202024-06-05%20at%2018.40.18.jpeg)
+![WhatsApp Image 2024-06-05 at 18.40.18](https://github.com/SlepenkovaT/Portfolio/blob/main/WhatsApp%20Image%202024-06-05%20at%2018.40.18.jpeg)
 
 Дата рождения 30.12.1986г
 Мама двух замечательных малышей
